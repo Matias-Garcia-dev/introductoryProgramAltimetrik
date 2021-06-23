@@ -1,11 +1,2 @@
-Agiles Methodologies and Scrum
-
-https://stackify.com/agile-methodology/
-
-https://www.ntaskmanager.com/blog/scrum-meetings/
-
-https://www.youtube.com/watch?v=ZZ_vnqvW4DQ
-
-https://www.youtube.com/watch?v=XU0llRltyFM&list=LL&index=3
-
-https://www.youtube.com/watch?v=XU0llRltyFM&list=LL&index=3
+My Google Doc
+https://docs.google.com/document/d/1-GaITBi2y3KlXQxdjiusdw0cT5v6gGm5Rh9eGcRp7xo/edit?usp=sharing
